@@ -1,4 +1,4 @@
-- 👋 Whats good, my name is @packdrip
+- 👋 Whats good, my name is Cam
 - 👀 I’m interested in sports & culture
 - 🌱 I want to learn Cadence
 - 📫 EMAIL: quinlancameronm@gmail.com
