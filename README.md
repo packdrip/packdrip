@@ -1,6 +1,6 @@
 - 👋 Whats good, my name is @packdrip
 - 👀 I’m interested in sports & culture
-- 🌱 I’m currently learning Cadence
+- 🌱 I want to learn Cadence
 - 📫 EMAIL: quinlancameronm@gmail.com
 
 <!---
